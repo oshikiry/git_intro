@@ -1,2 +1,1 @@
 Yutaka Oshikiri
-7
